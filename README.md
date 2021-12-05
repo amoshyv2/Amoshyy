@@ -1,2 +1,0 @@
-- Discord: Amoshy#4127
-- Fondateur de FrostMC: https://discord.gg/uzKs9F5dEy
